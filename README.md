@@ -17,3 +17,7 @@ https://www.blackhatfrench.com/crypter
 
 EDUCATIONAL PURPOSE ONLY !
 I'AM not responsable for you action 
+
+
+Our goal is to fight botnets and C2
+My team and I have seized more than 120 botnets in 6 months. Join everything on telegram to know everything.
